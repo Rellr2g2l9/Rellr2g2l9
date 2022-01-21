@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rellr2g2l9
-- 👀 I’m interested in ... nfts 
+- 👀 I’m interested in ... open
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... open
 - 📫 How to reach me ... businessbsn.rell@gmail.com 
